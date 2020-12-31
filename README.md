@@ -1,2 +1,2 @@
-# Resume_Fall-20
+# Resume
 My professional journey till date
